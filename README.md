@@ -1,3 +1,3 @@
 # shule
 
-mwanzo mgumu.
+mwanzo mgumu sana...!
