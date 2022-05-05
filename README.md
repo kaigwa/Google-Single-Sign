@@ -1,0 +1,3 @@
+# shule
+
+mwanzo mgumu.
